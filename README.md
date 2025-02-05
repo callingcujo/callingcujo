@@ -6,4 +6,4 @@
 <p text align=center>- - if u are 12 and under please do not talk to m</p>
   
 <p text align=center>
-<image src=https://github.com/user-attachments/assets/5b50c5cc-4127-4624-af85-48664defc1e8> </p>
+<image src=https://files.catbox.moe/mr1z39.png> </p>
